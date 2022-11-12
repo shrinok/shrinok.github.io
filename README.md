@@ -1,0 +1,1 @@
+# shrinok.github.io
